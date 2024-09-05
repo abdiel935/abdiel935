@@ -9,3 +9,10 @@ Eu gosto de carros esportivos.
 Gosto de cigarros eletronicos.
 
 Torço pro time do corinthians.
+
+Gosto de carros antigos.
+
+Gosto das series LÚCIFER,TEEN WOLF,SHADOW HUNTERS.
+
+EU Também gosto de motos esportivas.
+
