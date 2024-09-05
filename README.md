@@ -16,3 +16,4 @@ Gosto das series LÚCIFER,TEEN WOLF,SHADOW HUNTERS.
 
 EU Também gosto de motos esportivas.
 
+Eu gosto de sair com os amigos.
