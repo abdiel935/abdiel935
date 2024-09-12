@@ -6,8 +6,6 @@ Estou estudando na [alura](https://www.alura.com.br/planos-cursos-online?utm_ter
 
 Eu gosto de carros esportivos.
 
-Gosto de cigarros eletronicos.
-
 Torço pro time do corinthians.
 
 Gosto de carros antigos.
@@ -16,4 +14,13 @@ Gosto das series LÚCIFER,TEEN WOLF,SHADOW HUNTERS.
 
 EU Também gosto de motos esportivas.
 
-Eu gosto de sair com os amigos.
+Eu gosto de sair com os amigos. 
+
+Eu gosto de reunir com os primos e amigos e fazer uma resenha no final de semana, muita risada, piadas, brincadeiras.
+
+Eu pretendo no meu futuro ser um advogado bem sucedido, ser um bom advogado e poder dar do bom e do melhor para meus pais e para a minha familia, pretendo ter uma casa propria, um carro esportivo e uma moto esportiva.
+
+![](https://media.tenor.com/xVlgmC8rAHcAAAAM/corinthians-timao.gif)
+
+
+![](https://media.tenor.com/fxl3rIVAO9oAAAAM/attention-seeking-attention-please.gif)
